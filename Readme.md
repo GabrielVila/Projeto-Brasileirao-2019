@@ -103,7 +103,7 @@ Gabriel Alvarenga - https://www.linkedin.com/in/gabriel-alvarenga-rocha-994b5120
 
 Gabriel Vilarinho - https://www.linkedin.com/in/gabriel-vilarinho/
 
-Grabriela Mendes - https://www.linkedin.com/in/gabriele-mendes-adorno-46719493?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+Gabriela Mendes - https://www.linkedin.com/in/gabriele-mendes-adorno-46719493?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 Renan Silva - https://www.linkedin.com/in/renan-msilva?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app 
 
